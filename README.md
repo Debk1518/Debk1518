@@ -4,6 +4,7 @@
 - Minhas Redes Sociais:
 📷 Instagram: @dvid15_yk
 📧 E-mail: david.dacostaev@hotmail.com
+
 -Tenho grande interesse por basquete, esporte que pratico desde os 14 anos. Além disso, gosto de jogar videogame, assistir séries e ouvir música no meu tempo livre.
  
 <!---
